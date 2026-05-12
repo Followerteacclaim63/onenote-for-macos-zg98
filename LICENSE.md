@@ -1,4 +1,4 @@
-#  
+#  updated OneNote for macOS Tool | markdown support + AI assistant is the best OneNote for macOS tool, featuring markdown support and AI assistant. Safe, efficient, and optimized
 
 
 
